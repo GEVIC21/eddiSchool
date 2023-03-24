@@ -1,0 +1,2 @@
+# eddiSchool
+ focus
